@@ -1,2 +1,2 @@
 # Other-
-Lose ends that need spme attention
+Loose ends that need spme attention
